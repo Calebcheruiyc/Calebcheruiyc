@@ -14,5 +14,5 @@
 - Contributing to open-source projects
 - Advancing my knowledge in machine learning and AI
   ##**Contacts**
-- 📫 How to reach me; my email** calebcheruiyotsenior@gmail.com** or phonne number **+16163294272**
+- 📫 How to reach me; my email** calebcheruiyotsenior@gmail.com**
 - 🌐 LinkedIn:**https://www.linkedin.com/in/caleb-cheruiyot**
